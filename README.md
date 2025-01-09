@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @jmb0521
-- 👀 I’m interested in Hip, HipPop, Hipoponomous
-- 🌱 I’m currently learning: Together- by Czarface
-- 💞️ I’m looking to collaborate on any Rhymesaysers project
+- 👀 I’m interested in Hip, HipPop, Hipoponomous, and running.
 - 📫 How to reach me: In real life.
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
